@@ -1,0 +1,655 @@
+威能壁挂炉提示f.28错误售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月13日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括威能壁挂炉提示f.28错误售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+威能壁挂炉提示f.28错误售后电话400-811-596024小时售后服务热线上线（（2026年07月13日官网公布）最新公告）
+威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+威能壁挂炉提示f.28错误售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+威能壁挂炉提示f.28错误售后电话400-811-5960公司主营威能壁挂炉提示f.28错误售后电话400-811-5960维修 →威能壁挂炉提示f.28错误售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，威能壁挂炉提示f.28错误售后电话400-811-5960服务承诺?.
+北京市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/eerano/hangzhou/commit/0a18b1cc08e8983d3c94c29c9ccc569b75d94485
+。
+南京市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/sazourbaniku/beijing/commit/1ee307869f51f326c8ad291760ba88ab1e67beea
+。
+秦皇岛市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/61f1142e46bb638360721f6cd721cb10b7d3f2de
+。
+珠海市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/sazourbaniku/beijing/commit/9e7d8f140b63ce72f42895ca48e028ec3247d174
+。
+安康市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/eerano/hangzhou/commit/ff6247855d5f6c291362b33f2da7ab57ed462438
+。
+安庆市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/sazourbaniku/beijing/commit/d769e54984a080ca2a5d7aa0454d9b1872950e0f
+。
+鞍山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/7bfa2551f58058e951d9ce697e26a2b833f33f10
+。
+安阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/eerano/hangzhou/commit/6ef0afc89cf33afd19eaefe0e1cfaa1d5f0571ed
+。
+巴中市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/8275963aa74b0fc1d4c6243bae82ffa1e145e250
+。
+百色市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/sazourbaniku/beijing/commit/6b7a53e965c5dd0687b0c6e0b8dad6ad80446dd8
+。
+蚌埠市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/eerano/hangzhou/commit/ec2eb08dac7af69bcddc4fd3e02bb0ed5035a33b
+。
+保定市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/thomrikbay/chengdu/commit/013ad4398609ecb90175e7c5a9b347d7ac8b0579
+。
+宝鸡市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/0286a4baa8e4a0b8af149c6dd5ccfc492563ba16
+。
+保山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/sazourbaniku/beijing/commit/1ce8cde2f95eceb51b5eda69d5eefa8f3ce2a133
+。
+包头市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/eerano/hangzhou/commit/cff3631f632af2d8659b650411db5aaf10b7b7f4
+。
+北海市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/thomrikbay/chengdu/commit/6c4987b0dfa893abc4c28df75ff0c4324c343b89
+。
+本溪市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/sazourbaniku/beijing/commit/2ea9ae05ddd26c2cdcc91a8e5f1ccbc8c7657cd0
+。
+滨州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/320e31db23f23c26b7360e7c16a4ac29f22b6408
+。
+博罗市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/eerano/hangzhou/commit/b1a18ee0a1c7137d077f36dd1ebee387622620ab
+。
+沧州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/thomrikbay/chengdu/commit/4d24dfeca4e911b71845878657c3a798b3ab8317
+。
+长春市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/d9c45cedffa3821c560bbe0372a609ff10b96d9e
+。
+常德市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/sazourbaniku/beijing/commit/25c5a10dfbaf028fcff4eff3344d63befe5c9b2d
+。
+长葛市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/eerano/hangzhou/commit/c815e17dcbbc7f1d29d8df6bb52ecc97d7dacf4b
+。
+长沙市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/thomrikbay/chengdu/commit/18a83cfe422fe54689519c4b0bc3e2ec8310a359
+。
+常熟市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/6b0906073423e1cb1e5149197e8745e3f99ddada
+。
+长兴市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/sazourbaniku/beijing/commit/753b5814eaeca10fefc9c793febfdbf1b0f3473a
+。
+长治市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/eerano/hangzhou/commit/467cfb1e7bfb284a39233cdafe4cc923256cbbeb
+。
+常州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/thomrikbay/chengdu/commit/db28138143fb0944e8b680860de99e32bac3042a
+。
+巢湖市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/0e4ddffa2548888644de8ad53ac4d170b9c402fe
+。
+朝阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/sazourbaniku/beijing/commit/56aa1bec1eec04cb46cf59d179d7e5457c85bf87
+。
+潮州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/eerano/hangzhou/commit/1b425d2b1dd2ff7ddbfde21b62e3c0cf85b45418
+。
+郴州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/thomrikbay/chengdu/commit/0784196329b39a271a75fa11d3117c12e76209cb
+。
+承德市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/571596e7c600ff5ac026d16ff4350ed6e2879c73
+。
+成都市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/sazourbaniku/beijing/commit/f71ef84acc2a6e7cedd43cf90fb6307c2f1cfca4
+。
+池州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/eerano/hangzhou/commit/755d03957cdc4a84cc4b74ae150c9d970bd23a76
+。
+崇左市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/thomrikbay/chengdu/commit/2221ea65c33e002907ae54b346cfb4c3244261e2
+。
+滁州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/6e08f267b83194793e7d04e17ad9044fa7539d34
+。
+慈溪市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/sazourbaniku/beijing/commit/12340175e0c98294df297ffeed242be03253e32b
+。
+大丰市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/eerano/hangzhou/commit/537e11e5f5d584e7567143f0b0444ad8828e7545
+。
+大理市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/64e00d35dbc15bd192f290222fc52d47dc140888
+。
+大连市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/sazourbaniku/beijing/commit/a3dfe6a610c90a3570efd96883d28546f306c9fe
+。
+大庆市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/81419139bd81e99c2e2eac09a49d9b582c8ea8a3
+。
+大同市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/eerano/hangzhou/commit/094c1f672df52a4e9e06d47e3ac32d852b9a2691
+。
+达州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/thomrikbay/chengdu/commit/c02ad52d51ba05ddd9d3c84253f6249bdc9a85f4
+。
+丹东市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/bc1d1be288f1039a1eaa6b710b31326ecc18fc1d
+。
+德清市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/sazourbaniku/beijing/commit/fe33595b1890acc1f4f7d44325a0998d3ab3bb95
+。
+德阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/eerano/hangzhou/commit/c058a03dc11335783c1321af1a9c864b1e3c8eac
+。
+德州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/c0f108f49dfc7bd38f7ffa3833e100730b6f328b
+。
+定州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/7e6716ef19542b28a11d37cc72107bf8df200cdb
+。
+东海市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/sazourbaniku/beijing/commit/c302773821e5925919ddf8fb7704d42d58e1c59e
+。
+东台市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/146a15bee86ec089c8f47c403e44ebd4e0d7a440
+。
+东营市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/thomrikbay/chengdu/commit/5a85c2b0f7dc49bedd05f225b9595cab05d95dae
+。
+东莞市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/sazourbaniku/beijing/commit/dc738bf906d7216e4c55ba1cddec41951bc6517d
+。
+鄂尔市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/39f5d3aea5e6c8f30ef305eda7127e7b4843c7bc
+。
+鄂州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/68ac546fe32dc9fa30425b59334cc6310b128478
+。
+恩施市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/thomrikbay/chengdu/commit/c6d347fd60bf548f31de0740a024646af1455fb3
+。
+防城港市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/sazourbaniku/beijing/commit/5b02a2a030f91f01dc83cd9ffe6c085010885045
+。
+佛山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/c87b267303eb08591bc78dfc6ddd53ee4c7499ee
+。
+抚顺市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/thomrikbay/chengdu/commit/5076579a03c2d87278dc5b719c530a134317ea3b
+。
+阜新市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/eerano/hangzhou/commit/7efc224a3b962f09034a9a3b177b27ff1a8b2f05
+。
+阜阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/sazourbaniku/beijing/commit/49a4e8fec9be2d345228874507c2b8eb7b06851d
+。
+抚州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/d39b8aa5d983c11a739a02afc71fcea69e6a2fbc
+。
+福州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/thomrikbay/chengdu/commit/3dfc4bdad5fba7300c3dcd5ebfeb74e91dd90926
+。
+赣州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/eerano/hangzhou/commit/ae241cca15546d544185fa1e3e776feaa0c7a595
+。
+馆陶市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/sazourbaniku/beijing/commit/d064f3ef53e8d85e0de340a7f25dc34586a71d33
+。
+广安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/26c46d88073e40fd6b236d1d23a704c372afe802
+。
+广元市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/4734cc659d1fc8393487aa51a9849d4dcc249992
+。
+广州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/eerano/hangzhou/commit/f95f751435b459b45b0a4d61c07f02553602ab46
+。
+贵港市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/c67e990a16f52627a50b7760893a4e22cf6dfba5
+。
+桂林市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/sazourbaniku/beijing/commit/7cc96f00d0410eab1763b95ec4e6298658a5382e
+。
+贵阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/thomrikbay/chengdu/commit/c48b267df50548aecc903d137164405e5cc400f1
+。
+哈尔滨市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/eerano/hangzhou/commit/7e996c4689e5df2d5ba35f5cd76ddd049000d1d9
+。
+海安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/sazourbaniku/beijing/commit/c25e24e39a01e779ed15f7252958742f9cf775f3
+。
+海口市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/37c3f7b8ca92286098fc091ae30f927428b3140e
+。
+海门市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/f33877db5d997da79788e6ff7beca473641bafde
+。
+海宁市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/eerano/hangzhou/commit/f65f9e17db6f15a11350696b9ec0cf66c287d228
+。
+邯郸市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/sazourbaniku/beijing/commit/1f01eece738e63f617e56aaadaf5dd4883fb99b9
+。
+汉中市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/168d7edafaf3f6ac6fe5b10e45523579a344e02a
+。
+杭州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/8061fcf23444b22281f968b378d6ed35c0f8b922
+。
+鹤壁市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/sazourbaniku/beijing/commit/60c7e2a6ab8c2a6895df188b0e1dece6cd685b48
+。
+河池市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/eerano/hangzhou/commit/9b101dad2a6ffe7d39bae525b8e8f6571682455e
+。
+合肥市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/ceca5e8723038b065632430992ae2832f07ce44b
+。
+河源市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/thomrikbay/chengdu/commit/45fd5a070e5788f6b50af23b2455b27db50eadea
+。
+菏泽市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/sazourbaniku/beijing/commit/ea3db9a279b8e35017aee1bbed6494398becc40f
+。
+贺州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/eerano/hangzhou/commit/8c9436cd37745cc018bb442be078a03a4134f0d3
+。
+衡水市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/9262a7ee336c613d64b81df229f84c642621856c
+。
+衡阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/thomrikbay/chengdu/commit/23a0778028971bbc67c6db216b6c26d9ea1885c4
+。
+呼和浩特市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/36aa306cafff9dcf558da9cb5f659e18661e3e5f
+。
+葫芦岛市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/sazourbaniku/beijing/commit/d82855bf7dc4a5ef05a62d2710e5f72e90c620f7
+。
+湖州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/674ca06a99139058de582af288df3ebfe53d5a3a
+。
+淮安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/thomrikbay/chengdu/commit/25ff6a343cecc2a602f2c2253b8c53957b51d9a3
+。
+淮北市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/eerano/hangzhou/commit/345b8c4280891c238ddc4cdc8bf886d6c234ff90
+。
+怀化市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/sazourbaniku/beijing/commit/ebf4f141a6f5560128d12472dbfcbd2ad3a0a33c
+。
+淮南市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/2ea57f43f6b40ba2c182cc5495f10b76dd91c219
+。
+黄冈市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/thomrikbay/chengdu/commit/fb93ec25b4a418900e0a55378c29141cc3a21a33
+。
+黄山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/eerano/hangzhou/commit/7f4af9f8d25b180c407bd57db213d6fadb276285
+。
+黄石市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/sazourbaniku/beijing/commit/f966f57f24ee67376b854e8b22093b1d01c4d0bf
+。
+惠东市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/bcef061c13d6a2a2eb352afd942d740984e88b31
+。
+惠州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/thomrikbay/chengdu/commit/5eab19cfdd6c6130cbc3e7beedfecf171fad59f6
+。
+霍邱市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/eerano/hangzhou/commit/ec01fc7084aea4f4d596c5d10ebb9d41526bc73f
+。
+吉安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/sazourbaniku/beijing/commit/945d1f78f6b9eaa40c5e4a7228599dd994f5cfe9
+。
+吉林市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/25d03effe3b430604ee0ae39d7b2fda719aa13f1
+。
+济南市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/thomrikbay/chengdu/commit/886f25368bacec39b03c54e88865e305c45d7bb5
+。
+济宁市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/d3fac2005bdb882f67b082cbcddd388545448b59
+。
+济源市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/2ca9f25f521854761559abb3db4ff61c0fec871a
+。
+佳木斯市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/sazourbaniku/beijing/commit/54822a98baca0c4e2aabe6ac3ba0e672cb2e5098
+。
+嘉善市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/d966f38710397ccae069ed59084a584bf572c862
+。
+嘉兴市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/eerano/hangzhou/commit/e78c5980233d95119b2a9f7d1215e3ac887b14a5
+。
+嘉峪关市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/sazourbaniku/beijing/commit/3f90f91f9678c370045631544d3c74c29e2b9962
+。
+建湖市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/e3e51cff8ddf5d0bff7e191f7fa683ed56b268e4
+。
+江门市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/eerano/hangzhou/commit/0e20141dc4dfaeb38806545e06fa7509a422630d
+。
+江阴市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/thomrikbay/chengdu/commit/345a737d8b0f935704679226451514b4b85fe0fc
+。
+焦作市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/sazourbaniku/beijing/commit/8fb2542a1f31dee41714acc6cd9b1edf2afe63b1
+。
+揭阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/2c9c6a356e602baa4a6057c46752a0b362282f9e
+。
+金华市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/eerano/hangzhou/commit/2f4a432b468a67c3e44774098168da07c52dfb39
+。
+晋江市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/sazourbaniku/beijing/commit/8cc9d1ad893d2be6f30453db9dd35ac46eb0447b
+。
+锦州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/c193c0bad9a790c4ee3333c9f4935df33e2d3de0
+。
+景德镇市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/thomrikbay/chengdu/commit/8ddc97b3c42e1c018068c1a0411979b778ca0ebd
+。
+靖江市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/eerano/hangzhou/commit/d6c0eafdad7d847dc883422d3df66b7a261810f0
+。
+荆门市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/sazourbaniku/beijing/commit/074c097feef11a5bd6bde7c44c1f5436031a88c9
+。
+荆州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/829366a43c1e29afd96d37ba2fac40566069523d
+。
+九江市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/eerano/hangzhou/commit/741ba0939fc24d4ae52892f45266473e731ea28f
+。
+喀什市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/sazourbaniku/beijing/commit/4084f5a2b59ba2103bba28df46cb279cbe6abfb1
+。
+开封市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/28c1ad394a8c8fc9bc399cf36e567f778bc29ccd
+。
+克拉玛市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/eerano/hangzhou/commit/92fe98b8fd72582bfe5c17459d50677504589847
+。
+垦利市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/sazourbaniku/beijing/commit/f970e48e447bc0f35f4f202e7ca887819ccb2186
+。
+昆明市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/8bad13ccf194c7139741a113132a1fa62089c1ae
+。
+昆山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/eerano/hangzhou/commit/ca16d831a8c9627284ab5773db422527d0a5cc7f
+。
+拉萨市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/sazourbaniku/beijing/commit/279beba1c092528f56cbd9499081fe3523e78cae
+。
+来宾市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/f22e75b13a0b44733ce78410f7b7f64b5065f25f
+。
+莱芜市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/eerano/hangzhou/commit/7b24ee28b70baeb63da293cb4cd53c12b924baf9
+。
+兰州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/sazourbaniku/beijing/commit/352193f33b3f99d19ea37b05a38f27a76f284aa6
+。
+廊坊市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/thomrikbay/chengdu/commit/b2cf980c5ed2b1f7c18af1618614c20fadbc737d
+。
+乐清市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/4864a572862c6e613274f3d090a66653c1786c41
+。
+乐山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/eerano/hangzhou/commit/d6df739a6796fb5ac3315a8709a441dcac52a124
+。
+丽水市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/sazourbaniku/beijing/commit/7828f31db3c31ccf8546a5c295c6c2c6d3654ddb
+。
+连云港市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/9c325acedcc7da029e4f8f10e82de8943fd82d09
+。
+凉山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/eerano/hangzhou/commit/afbe954af0a7230f91c911c3a363a92e3c634d36
+。
+聊城市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/thomrikbay/chengdu/commit/2148dce54692a0a856a4c17f1554fbbdee78c5bf
+。
+辽阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/5feddec461c648cb483e99f6f06c67b75031a50d
+。
+临汾市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/sazourbaniku/beijing/commit/1aa5c168eb6f7adef400a2b1ef3102bd0f342356
+。
+临沂市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/thomrikbay/chengdu/commit/9bd173faccf6826dce41076d5a78806b4dc61a15
+。
+六安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/eerano/hangzhou/commit/5a4883f9186ebc139b84fa0fcd3e0f1fb1a5a37f
+。
+柳州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/sazourbaniku/beijing/commit/b479a6c91344c2110ea8c7fcf0abd3921c1d3524
+。
+龙岩市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/c387654456e9486a1b4e5a09c68154e33686b1db
+。
+娄底市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/thomrikbay/chengdu/commit/4f49469482852e5c0dbd619bff532e0e4547e231
+。
+洛阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/eerano/hangzhou/commit/46de770a3b8b6c285582557e4846f488cc2d0078
+。
+马鞍山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/0a1d6b786d24db242bfc26565989b7e24398be20
+。
+茂名市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/sazourbaniku/beijing/commit/47d3b2db87e5ef8217b299ba898e4cb6ef761851
+。
+眉山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/thomrikbay/chengdu/commit/6bb278abacc3cefa1a7c6d2538c995703039c4eb
+。
+梅州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/7d42a5985760a272c158b76ab37e818f29550ac8
+。
+绵阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/sazourbaniku/beijing/commit/6a1d25228cc6c33364558c56da05a4d4add3c740
+。
+明港市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/a2a6447b5ee857c4cc5cca8416c8278e74dbe6c5
+。
+牡丹江市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/thomrikbay/chengdu/commit/5854fcbdad631195800b48f1d37d93f45d1b8f8e
+。
+南安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/eerano/hangzhou/commit/1d2a1d85fd200fcb0890680fa4735b06ab44ea63
+。
+南昌市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/sazourbaniku/beijing/commit/496a5ae8b79d69adf6809cbcb20dc027d96b2e92
+。
+南充市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/63302ce80ea51498a54501eea7ad8e6a0b3c3189
+。
+南京市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/thomrikbay/chengdu/commit/285ce31d8b5f83602630b9bde1f4f0e9f03e0fa6
+。
+南宁市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/08969ba93b6a82b4d2746f5d0b588ff7863fc445
+。
+南平市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/sazourbaniku/beijing/commit/0322277457cca2071baa75c8a27c6adc576c7437
+。
+南通市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/4b84edf327d1ab3c0833f45ca9f91b007f475f07
+。
+南阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/thomrikbay/chengdu/commit/dffd120b8c8b46688093917f1d7a9138351d47f6
+。
+内江市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/c38d8919593e78de4e563d5d97fb58a01196b3c4
+。
+宁波市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/sazourbaniku/beijing/commit/f47942ef5eb9ec57942813d0a9f2525486b78cc8
+。
+宁德市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/aaa99b1d85808a560abfa14b1229a5f73dc3ae5c
+。
+宁国市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/thomrikbay/chengdu/commit/a66e27c600a89f6f4ae0b9b0064a8a8a05020fd8
+。
+盘锦市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/2b3938138acb91544f5e0fe0c339ea02a2352163
+。
+攀枝花市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/sazourbaniku/beijing/commit/d40f7425eab40a937ae159fc52d396b8c0da290f
+。
+平顶山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/1a33091d6aba649fce4f6a2d5d07d3ffec60fc99
+。
+萍乡市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/thomrikbay/chengdu/commit/cc2e001895d516b49b31d35b5b118002654a1e40
+。
+莆田市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/eerano/hangzhou/commit/42f0b32e260dae91fc905d773b1165e67333cd67
+。
+启东市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/3007f923c27be6f87efd9c43e7e1c6507b67957c
+。
+齐齐哈尔市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/sazourbaniku/beijing/commit/f80fab523090db367d4a536fa7032f28d7335114
+。
+潜江市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/thomrikbay/chengdu/commit/d837596fb2f660c82631ab5d2f230749d8b2eded
+。
+秦皇岛市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/eerano/hangzhou/commit/b58e27a5c53cbe794dc1ccaf327e356d07ccd49c
+。
+钦州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/c1183dbb7d494c4599100a967655a7c80f6b1e64
+。
+青岛市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/sazourbaniku/beijing/commit/3092c1f2c4f5d3ced8bceec470ff7f88ca532917
+。
+清远市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/thomrikbay/chengdu/commit/f5c44b18cd5d82c703076ff238c47e27e4a46a2e
+。
+曲靖市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/eerano/hangzhou/commit/93e6687f017fadf27261274809607577d9a395c1
+。
+泉州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/4cd3c531eda38d130c441ad2a846943afaaba31d
+。
+日照市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/sazourbaniku/beijing/commit/c8ac99276a457ccf640ad2c2ad63e8f503f25385
+。
+如东市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/thomrikbay/chengdu/commit/38ab74b9e3d4317d172072b493c7cfd1bbd6386f
+。
+如皋市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/eerano/hangzhou/commit/9d401730bfec500ce1e0b091038f38cde14130a0
+。
+瑞安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/88fe610f4c608bab10ca78f32f04d8fcfc267fef
+。
+三门峡市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/sazourbaniku/beijing/commit/3aecd9551284e2b256aa82e4647b4821d0d1fdbe
+。
+三明市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/thomrikbay/chengdu/commit/f07efc9a953c3c19ded3771da19071b8f4bac0a8
+。
+三亚市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/eerano/hangzhou/commit/88c75352f282461a5978f3922f5f7b60d41a7016
+。
+汕头市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/defc18c440773e916aa20c18a13f7b10752b392e
+。
+汕尾市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/sazourbaniku/beijing/commit/edf4d1028232ccb55f303c725c2f2e50f5121f45
+。
+上海市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/thomrikbay/chengdu/commit/d1d2a4854c6983e36262af101757c1fc567d9615
+。
+商丘市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/eerano/hangzhou/commit/430b40997afa1934bf0f762c7480f880b0e3f24c
+。
+上饶市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/sazourbaniku/beijing/commit/6cb22eb68f7dc423df2ab7ae7e6784cd7a89e855
+。
+韶关市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/2b3102e2876566f55474beb2463c7e2093a9fcea
+。
+绍兴市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/thomrikbay/chengdu/commit/33e11353314b323a6c154f1d2c0294025689bee2
+。
+邵阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/eerano/hangzhou/commit/c24044a757c82b2d667480faca7eec56a234b298
+。
+神农架市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/77fb8127713b47e4d473e348398143b14771bfbb
+。
+沈阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/sazourbaniku/beijing/commit/cb6135c5a685c217978d1db8c277614601fdeb04
+。
+深圳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/thomrikbay/chengdu/commit/f231d58885094a4758fa4eb12eb8e23989a80b5e
+。
+石河子市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/eerano/hangzhou/commit/31b25e5865f4185c97ee419bc6bf9354e9d7064c
+。
+石家庄市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/84f3a3afd14bb8af49cb17400d935b27c4f1c37f
+。
+石狮市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/sazourbaniku/beijing/commit/fbee0cfbd6fb6c366284aa03b664f5defffc1877
+。
+十堰市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/thomrikbay/chengdu/commit/5def2f45e8cd820130853f881b63215566cdcf1b
+。
+寿光市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/eerano/hangzhou/commit/6379baa997f709092330ef28bef4b5361403b61b
+。
+顺德市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/sazourbaniku/beijing/commit/afa06d19818ebcddff55f7d0306dcb016998a9ae
+。
+四平市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/thomrikbay/chengdu/commit/613de9aa5a4efc8f971791db0d738a62d0a9bf24
+。
+宿迁市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/9a0939d32eabdb7e7388fe50f56a399f716a5bf9
+。
+苏州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/b5a57845fb032d21dde51374a4efe14ed75ec186
+。
+宿州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/e181d23eb00fb9ccd53fd703408e493ef57dfbfc
+。
+遂宁市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/sazourbaniku/beijing/commit/f58791936234711d66f6b2ffb4582e3686f20881
+。
+随州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/13a6fd7b7a6dbf385d3b66da1d77b03da5493e6b
+。
+泰安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/520233a684ad491caace49dfdd052ed30aca8293
+。
+台山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/fe3135771f82acd5d2ed48b2a47a0df720040c1d
+。
+泰兴市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/sazourbaniku/beijing/commit/d4e53ed39ff87d910f3c8400198a1bd89e7bd3ee
+。
+太原市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/thomrikbay/chengdu/commit/459256b50483f91e14adee677d99d865ffeae689
+。
+泰州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/1798fb6c206998031ba3f4ebbdc41046b19215b9
+。
+唐山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/sazourbaniku/beijing/commit/b25f95ef78989936e0ace1dffc5c25c04c13f30d
+。
+天长市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/0f2c33517f456e384e4a46158af77c8f9e817958
+。
+天津市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/thomrikbay/chengdu/commit/02ed08c620dfbddcb0722d9e05c12b8ec5773d88
+。
+天门市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/eerano/hangzhou/commit/5f7c020336a35f474b01d3448c02d0e767d6f664
+。
+天水市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/edc6ff06d116ba4a0fe0982134420e017af1b085
+。
+铁岭市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/sazourbaniku/beijing/commit/fcff9fa87b0505f925cd9d84a10fab18af81b07c
+。
+桐城市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/thomrikbay/chengdu/commit/4d89d450b7cfdc00a206391e5a921963e11d8091
+。
+铜川市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/4851538a3c8c3d731002e89b215d76967ef51ace
+。
+铜陵市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/546ee999dbdc8e12a44bc897ea75b4930f4e24d6
+。
+桐乡市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/sazourbaniku/beijing/commit/ee9b8f96ff2dd00ff53f1ab15094c38d08b9bfcd
+。
+瓦房店市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/thomrikbay/chengdu/commit/71719a07f767e416a5faf330a9d4fc9879b8c3bd
+。
+潍坊市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/eerano/hangzhou/commit/21486a56fb06dbae910fba8de6b3273d5d3d10ab
+。
+威海市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/sazourbaniku/beijing/commit/4ef217a088a3776c32ea9766be38c518e65de052
+。
+温岭市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/5dc8910f85aabfa6790c504cc3a3b2d08c57244b
+。
+温州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/thomrikbay/chengdu/commit/06446c3d40c4c78f98fe9213354ecbbf8d559ab6
+。
+武汉市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/eerano/hangzhou/commit/8b112835a8098bded9c54e3a3f2644bd730d0a6f
+。
+芜湖市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/fb1d6e8f7499c5961e1efb1d2b99b285e9a1ab2a
+。
+乌鲁木齐市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/sazourbaniku/beijing/commit/b30d03ab3a133c131111b8ceedeb3e5c2c713ef0
+。
+无锡市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/6b84f71514d9dbb1793c27296401f33ff4900862
+。
+武夷山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/eerano/hangzhou/commit/00f4bc69c1a140f619263eaf9d94e825c43cc732
+。
+梧州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/63a747d40bac922707b56b048d2ba074f1fd6b1c
+。
+西安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/sazourbaniku/beijing/commit/9e1578b59a4fa41062d37e0547ef03069a3d3712
+。
+西宁市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/thomrikbay/chengdu/commit/336d340da71a89b22db190a81ee1fb0e3d2e8176
+。
+厦门市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/eerano/hangzhou/commit/594a0349757fc4462bbda327cfdea92a4e4021ff
+。
+咸宁市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/sazourbaniku/beijing/commit/5192c90592b8caed9c5b0b5bdc4797dbf1a2068b
+。
+仙桃市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/ae65eaff545649be1cb17b508382c601e39fb96b
+。
+咸阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/ead299a6477e993223afe6d03845260da6a20bc3
+。
+襄樊市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/eerano/hangzhou/commit/e562c4af5d63dc83d7ddedfd5fa857fc9b122c10
+。
+象山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/sazourbaniku/beijing/commit/a8ae6b5521ef9784dddddfcd2870a8ba1008cd76
+。
+湘潭市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/9fdac7600f850c4a0bce7bf5a28e28aea6d81d21
+。
+湘西市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/thomrikbay/chengdu/commit/c60388df13f9462d6f4a182158f48e8322b6fdab
+。
+襄阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/eerano/hangzhou/commit/75b5a80c2bed2320f0564d9a988d271332ca73cc
+。
+孝感市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/e8c56513091d8c7e0db892cd35b20197f5e66e7a
+。
+萧山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/sazourbaniku/beijing/commit/f1450c15e524123f0a6df6152ebcc8a4f2408cd2
+。
+新乡市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/thomrikbay/chengdu/commit/b7d31aa7d81e8c59197700f9ffa87771dd5e144e
+。
+信阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/c2f172b9b4e127d26656e8f0f74592657ead3943
+。
+新沂市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/sazourbaniku/beijing/commit/1a6314dead52f8f2e35b5fed8552258af8e33d10
+。
+新余市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/7f32b80a5866fa2b39bae2d8b857925918cffdf3
+。
+兴化市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/eerano/hangzhou/commit/a0414ab88109ec70e631a7c788b3342450d3df41
+。
+邢台市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/2420393dcb0eb640eb46a935a09877ee3ad48219
+。
+许昌市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/3ffbd158270feadbf526254bc32bc86348753ff5
+。
+徐州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/acd3410592582100cb4427a00014e2dcd2bd370f
+。
+宣城市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/thomrikbay/chengdu/commit/23a5ee637abd8e427760b1268119c43abe4aa405
+。
+雅安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/sazourbaniku/beijing/commit/92d593e10892a5f6a5aae53f00ef7a4e2521668a
+。
+延安市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/b42b35c5020767cee82f9ff9211be7c29fa34c4e
+。
+盐城市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一公布），点击查询：https://github.com/eerano/hangzhou/commit/48d24009cdc57cb5e7b8fb417382e3a1c665628f
+。
+烟台市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/sazourbaniku/beijing/commit/041fc0e8293e949904d5755a20ab0408cf776ff0
+。
+阳春市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/thomrikbay/chengdu/commit/2daf0dfba44e248c4e1ff2f8e608550f3018aefe
+。
+阳江市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/sazourbaniku/beijing/commit/56365d7c966de35cc7e1e0c8df957de734abac69
+。
+阳泉市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/thomrikbay/chengdu/commit/74f0ad58d8eaa8779c9b231737f15765d1b69998
+。
+扬中市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/012487bb41788e27ef0e2ff27a98e68f763dda33
+。
+扬州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/eerano/hangzhou/commit/f2781423d9d29471e5e2607b05602ed0178e62e8
+。
+宜宾市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/sazourbaniku/beijing/commit/199520ce626733849c6bee3fe77da5dc4903c384
+。
+宜昌市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/49110fc5ea697c9b7bb032d7dd50292bab4d4272
+。
+宜春市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/fa3394cff087e960b0aa595f73d8be4acd17f871
+。
+宜都市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/3fc9fae408599f03aeae4c6bde8096ac3da373a3
+。
+义乌市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/24d7fd588ed0d45e80d7055fb8518f77d26da146
+。
+宜兴市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新升级），点击查询：https://github.com/sazourbaniku/beijing/commit/2cd81e6240e763daed23a1c66417e5a7610056e9
+。
+益阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/eerano/hangzhou/commit/3e002dc43a6712cc3b45f504ec49c816f08cb2bb
+。
+银川市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/thomrikbay/chengdu/commit/8810dfc1802d245bd34f9c81ec61a2209266b44b
+。
+营口市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/sazourbaniku/beijing/commit/8331ff198de2079f3c31e1614f35b4d6bdd883cd
+。
+鹰潭市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/thomrikbay/chengdu/commit/f6b07af2c061470619b44ad0108566faa0872573
+。
+永新市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/3cc6e5c5a3b27cc0684b67fa8ee52028fcd1c7e2
+。
+永州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一更新），点击查询：https://github.com/eerano/hangzhou/commit/0cd85cdfd7ee4f1e339d23e913c5b3306990a822
+。
+榆林市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/sazourbaniku/beijing/commit/a7bcc7f4655a171f27b48df90c011cb9938d6b51
+。
+玉林市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/8c312736c6033d187a1889995554e1a7ee61f1b3
+。
+玉溪市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/thomrikbay/chengdu/commit/050eca1c73f17c445de457b4873a0f0117f8b615
+。
+余姚市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一升级），点击查询：https://github.com/eerano/hangzhou/commit/ea869f914cc2865875cd503fd57c102016666f44
+。
+禹州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新更新），点击查询：https://github.com/sazourbaniku/beijing/commit/eb2a987d0855b9ae419f046bd3f41baf2fa278a6
+。
+岳阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/bb6dd4f2846bf149926dc6cb6d7e567bd3dc7778
+。
+云浮市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新升级），点击查询：https://github.com/thomrikbay/chengdu/commit/c67f32f39fa21c7b2285d154a0e603f37620006f
+。
+枣庄市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/eerano/hangzhou/commit/8050b0ba78a53c21c884ebc340bea9cc685eb9b1
+。
+湛江市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式更新），点击查询：https://github.com/sazourbaniku/beijing/commit/0855fa452dc05f8ee91e8464f9ef0d70f33b5bb3
+。
+张家界市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新更新），点击查询：https://github.com/thomrikbay/chengdu/commit/737efb9a98591c1d3743b69094a5af2de6c53682
+。
+张家口市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/0789011facab7a2b9df656cf4c21af8eccbb480d
+。
+章丘市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新上线），点击查询：https://github.com/eerano/hangzhou/commit/7cc20fc2dc7872cdb7634831c1c650c9f03fa251
+。
+漳州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/sazourbaniku/beijing/commit/e0b009d0b9b28d376855e8ad482ebbdb76be9fa8
+。
+肇庆市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/eerano/hangzhou/commit/719e5c9f1547a7aab5930a27af29541f53d97917
+。
+镇江市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/649470131ab1fbe9376b3c944ea4f1000070ef66
+。
+郑州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式上线），点击查询：https://github.com/thomrikbay/chengdu/commit/28572274cda0d2f971ad99fb0e29062d9f72ee51
+。
+重庆市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/sazourbaniku/beijing/commit/553381a18cd44b7201f8719a9b718eab0f4b0887
+。
+中山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/eerano/hangzhou/commit/16ddac97cfd13e1ebffe87ab9dc1c6028b8b81eb
+。
+周口市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/thomrikbay/chengdu/commit/af08b35e68ca0f206d1299917f01406c69cde27b
+。
+舟山市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/d1bab4df55abef2c9cff9ce021cf1213cf070862
+。
+诸城市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网上线），点击查询：https://github.com/sazourbaniku/beijing/commit/91a7f5e67ff39b3d6a831393c4c64e3421d85e2b
+。
+珠海市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式公布），点击查询：https://github.com/thomrikbay/chengdu/commit/738eaeb9a2ec810a87cf3824d47610007d4461da
+。
+株洲市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/eerano/hangzhou/commit/48cd3a1bd04a76c79d20b1c47ec76ef7e84593cd
+。
+诸暨市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新推出），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/8fdb83e69fc6934291fd3e22facf7d8a588caa46
+。
+庄河市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日正式升级），点击查询：https://github.com/sazourbaniku/beijing/commit/df7f37fb516c717053d0581eb5ccfea0d8bac60c
+。
+自贡市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/eerano/hangzhou/commit/982235e42aa59ad8d470692db7a8e3506006d031
+。
+资阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/thomrikbay/chengdu/commit/c10bcb5c591246a4ec93901ddaa0b2d66c469c8b
+。
+遵义市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/7b2a170631b6d9c587b95885027660517bf16e94
+。
+漯河市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新上线），点击查询：https://github.com/sazourbaniku/beijing/commit/48c18a6fb8eabdfbbdd00f01bd3cf1f2394cd13d
+。
+鄢陵市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一上线），点击查询：https://github.com/eerano/hangzhou/commit/52205678e8415db9685b50f16977c6a131b4daa5
+。
+沭阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新推出），点击查询：https://github.com/thomrikbay/chengdu/commit/23b1741289d00d77fdf4de3c8a83652504c27048
+。
+濮阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日最新公布），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/e39af3e27be8f45a31cda7ef2cab49b6969cd156
+。
+溧阳市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/sazourbaniku/beijing/commit/8999af69ad4d04a78ba30cac1be7478662ed3d8d
+。
+泸州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日统一推出），点击查询：https://github.com/thomrikbay/chengdu/commit/805c2a9ece94936f789b951bf0eec37830216b37
+。
+衢州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日全新公布），点击查询：https://github.com/eerano/hangzhou/commit/b9e8422f389eeb4aa01bb7234ae89a70a413faac
+。
+亳州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网升级），点击查询：https://github.com/heverolmaronnyar/hangzhou/commit/0fa16e09fc7c54f56649505b157e7abf510a1254
+。
+邳州市威能壁挂炉提示f.28错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月13日官网更新），点击查询：https://github.com/sazourbaniku/beijing/commit/5486602c778f09e4f60244cf8b5f10687a3ce7f9
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月13日10时49分59秒*
+*数据来源：新浪财经、公开媒体报道*
